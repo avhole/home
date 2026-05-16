@@ -3,6 +3,8 @@
 请选择最新网址
 
 [www.avhole.com](https://www.avhole.com)
+[avkeng.com](https://avkeng.com)
+[avhug.com](https://avhug.com)
 
 中国浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看
 
