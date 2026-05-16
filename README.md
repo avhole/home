@@ -2,7 +2,7 @@
 
 请选择最新网址
 
-[www.avhole.com](https://www.avhole.com)
+[avhole.com](https://avhole.com)
 
 [avkeng.com](https://avkeng.com)
 
